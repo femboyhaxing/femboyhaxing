@@ -1,5 +1,22 @@
-### Hi there 👋
-### nerd, storing code here
+### hello 👋
+nothing's visible because i store code here... (projects soonish tho)
+🎶: hyperpop, emo rap, rap, dubstep/techno, electro/dnb.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 <!--
 **femboyhaxing/femboyhaxing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
