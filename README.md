@@ -1,5 +1,5 @@
 ### hello 👋
-nothing's visible because i store code here... (projects soonish tho)
+nothing's visible because i store code here... (projects soonish tho)\
 🎶: hyperpop, emo rap, rap, dubstep/techno, electro/dnb.
 
 
